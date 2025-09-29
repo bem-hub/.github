@@ -60,4 +60,4 @@ Se você compartilha dos nossos valores e deseja colaborar com projetos que gera
 
 📫 **Contato**: [seu-email@dominio.com]  
 🌐 **Site oficial**: [em breve]  
-🔗 **LinkedIn**: [linkedin.com/company/bemhub]
+🔗 **LinkedIn**: [[linkedin.com/company/bem-hub](https://www.linkedin.com/company/bem-hub/)]
